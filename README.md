@@ -21,8 +21,8 @@ I support Manchester United 👿 and Barcelona 😎.
 
 <img align="right" alt="GIF" src="https://media.giphy.com/media/3ohzdKvLT1DxFxhZAI/giphy.gif" />
 
- - 📫 How to reach me: [abhishekmaira1999@gmail.com](mailto:abhishekmaira1999@gmail.com);
- - 🔗 My website: [https://www.abhishekmaira.com/](https://www.abhishekmaira.com/)
+ - 📫 Comment me joindre: [abhishekmaira1999@gmail.com](mailto:alexandre.charles92@gmail.com);
+ - 🔗 My website: [https://www.abhishekmaira.com/](https://alexandrecharles92.myportfolio.com/)
  
  <br>
 
